@@ -1,4 +1,4 @@
-# Publications List
+# Publication List
 
 ### Hello I am Janmesh Ukey, this is the list of all my publications till date.
 
